@@ -1,0 +1,1 @@
+I'm Itachi, I'm 16 years old, I'm in my first year of high school and I want to be recognized for my talent, I live in Curitiba Paraná, I want to be a programmer to learn how to develop my knowledge in this area, I'm IT. I was an IT analyst. I know how to disassemble and assemble, format everything that Um, T.I.
